@@ -16,6 +16,6 @@ I am most experienced in the Fintech industry, especially Payments. Over the yea
 
 And at the end - I'm only human like all of us. I know that one can reach excellence in their job, but I also know that I will make mistakes and I have a universe of learning ahead of me.
 
-If this is your vibe, drop me a line. I'm always curious to meet new people, learn new things, and perhaps give back to the community by sharing something I know.
+If this is your vibe, drop me a line. I'm always curious to meet new people, learn new things, and perhaps give back to the community by sharing something I know. And most importantly, every new person I meet is the whole new story!
 
 jkdabrowsky@gmail.com
