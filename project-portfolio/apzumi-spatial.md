@@ -1,0 +1,2 @@
+I was responsible for market research and competition analysis, defining the product with specific use-cases and creating the commercial offer, creating the first webpage and defining the go-to-market strategy. My main contribution to their success was that the sales team got equipped with tangible materials and solution ideas for the companies they talked with and let us close more deals.
+See the webpage [here](https://en.spatial.apzumi.com/apzumi-spatial). 
